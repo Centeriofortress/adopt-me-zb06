@@ -1,4 +1,4 @@
-
+adopt me secret Script offers the most advanced adopt me Script, with fly and one-hit kill. Perfect for dominating any match.
 
 
 
